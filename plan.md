@@ -30,3 +30,6 @@ We should have ready supplies for 3-5 breakfasts, 2 lunches, 2 dinners. Ideally 
 - 1 jar of coffee
 - 1 box of teabags
 
+### Snacks
+- 1 pack of cheese strings
+- 2 small bags of unsalted roasted nuts
