@@ -35,6 +35,7 @@ We should have ready supplies for 3-5 breakfasts, 2 lunches, 2 dinners. Ideally 
 - 2 small bags of unsalted roasted nuts
 
 
+
 ## Entertainment
 
 The entertainment will primarily be for eveining time as im sure there will be enough to do during the day. We will prepare some games, music and for some craic.
