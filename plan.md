@@ -33,3 +33,21 @@ We should have ready supplies for 3-5 breakfasts, 2 lunches, 2 dinners. Ideally 
 ### Snacks
 - 1 pack of cheese strings
 - 2 small bags of unsalted roasted nuts
+
+
+## Entertainment
+
+The entertainment will primarily be for eveining time as im sure there will be enough to do during the day. We will prepare some games, music and for some craic.
+
+### Games
+- Deck of playing cards
+- Scrabble
+- Connect 4
+
+### Music
+- Guitar
+- Maracas (Hopefully Manuel can give us a lesson on these)
+- Some bad singing
+
+### Craic
+- Some Irish whiskey (fits nicely in the entertainment category, i will provide this) for stories around the campfire
