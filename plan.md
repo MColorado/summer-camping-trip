@@ -52,3 +52,11 @@ The entertainment will primarily be for eveining time as im sure there will be e
 
 ### Craic
 - Some Irish whiskey (fits nicely in the entertainment category, i will provide this) for stories around the campfire
+
+## Extra Activities
+ - Fishing/Hiking
+ - Boating, Canoeing, or Kayaking
+ - Wildlife spotting
+ - Nature photography
+ - Firewood collecting (to use for cooking later)
+ 
